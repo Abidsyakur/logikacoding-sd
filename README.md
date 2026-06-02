@@ -145,4 +145,4 @@ Silakan dimodifikasi sesuai kebutuhan kelas.
 
 ---
 
-*Dibuat dengan ❤️ untuk generasi programmer Indonesia masa depan.*
+*Dibuat dengan cintahh untuk generasi programmer Indonesia masa depan. *
